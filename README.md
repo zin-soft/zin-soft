@@ -1,0 +1,3 @@
+- 👋 Olá, sou o @zin-soft
+- 👀 Me interesso por tecnologia, novidades e animes
+- 🌱 Atualmente, estou em processo de criação
